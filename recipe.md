@@ -10,3 +10,5 @@ Put slices some potato and onion into the baking bowl if you wish to add a side 
 
 Step 3: Roast!
 If you are using thick pieces then bake for 30 minutes at 350°F, but if you are using smaller pieces and want a crispy crust bake for 15 to 18 minutes at 450°F
+
+Step 4: Enjoy!
